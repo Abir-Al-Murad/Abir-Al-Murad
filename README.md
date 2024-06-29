@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Data Structure and Algorithm, Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 📫 How to reach me email: abiralmuradnub@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
